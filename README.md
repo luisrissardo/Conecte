@@ -1,2 +1,0 @@
-# Conecte
-Avaliação Prado Tech
